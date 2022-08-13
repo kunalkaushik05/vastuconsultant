@@ -1,0 +1,7 @@
+Dr. Kunal Kaushik is a very well-known Scientific [Vastu Consultant in Delhi](https://vastuconsultantindelhi.com). He is one of the highly qualified Vastu Consultants from India. He is a leading Scientific Vastu Consultant & Founder Trustee of IRIOS (International Research Institute of Occult Sciences). He is globally renowned for propagating the Scientific Vastu without Demolition and without Superstition.
+
+He provides On-Site Vastu Visits Worldwide. He has already done Vastu Consultations for more than 90000 Clients Includes Vastu for Large Scale Industries, Businesses, Warehouses, Apartment Complexes, Group Housing Societies, Pharmaceutical Companies, Textile Industries, Glass Industries, Paper Industries, Wood Industries, Schools, Colleges, Institutions, Government Offices, and Complexes.
+
+He as a Vastu Guru teaches Scientific Vastu. He provides Scientific Vastu Courses Online and Offline. He has already taught more than 20000 Students Worldwide.
+
+[Vastu Consultant in Delhi](https://kunalvastu.com/top-vastu-consultant-in-delhi-south-west-facing-house-best-vastu-consultant-in-delhi-west-facing-house-vastu/), [Vastu Consultant in Delhi NCR](https://vastuconsultantsindelhi.com), [Vastu Consultant in South Delhi](https://vastuconsultantindelhi.com), [Best Vastu Consultant in Delhi](https://kunalvastu.com/top-vastu-consultant-in-delhi-south-west-facing-house-best-vastu-consultant-in-delhi-west-facing-house-vastu/)
